@@ -1,6 +1,6 @@
 ### Hey there, I'm Jack 👋
 
-🎓 I am currently a 1st Year International Business Management Student in Cambridge, United Kingdom.
+🎓 I am currently a 2nd Year International Business Management Student in Cambridge, United Kingdom.
 <br>
 📊 I'm the Director of Arctane Digital and a Freelance Front-End Web Developer at DBWD working on clients nationwide!
 <br>
